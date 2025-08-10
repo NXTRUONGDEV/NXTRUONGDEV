@@ -11,7 +11,7 @@
 - 🎧 Nghe nhạc lo-fi khi debug (cảm giác bug tự biến mất 🤫)  
 - 🎯 Thích biến ý tưởng điên rồ thành sản phẩm thật.  
 
-📫 Kết nối với mình: [Facebook](https://facebook.com/) | [LinkedIn](https://linkedin.com/) | [Email](mailto:your.email@gmail.com)  
+📫 Kết nối với mình: [Facebook]([https://facebook.com/](https://www.facebook.com/xuan.truong.377943/)) | [LinkedIn]([https://linkedin.com/](https://www.linkedin.com/in/tr%C6%B0%E1%BB%9Dng-nguy%E1%BB%85n-xu%C3%A2n-a35589374/)) | [Email](nxtruongdev@gmail.com)  
 
 
 
